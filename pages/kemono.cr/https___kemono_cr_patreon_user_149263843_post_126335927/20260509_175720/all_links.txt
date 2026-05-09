@@ -1,0 +1,7 @@
+.
+/assets/favicon-CPB6l7kH.ico
+/assets/index-legacy-CJCiOKqK.js
+/assets/index-szizO2gj.js
+/assets/polyfills-legacy-CTFsgIEY.js
+/assets/style-DvDCM8eP.css
+/static/js/lazy-styles.js
