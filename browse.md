@@ -16,3 +16,4 @@
 - [https___kemono_cv (20260509_155656)](pages/kemono.cv/https___kemono_cv/20260509_155656/index.md) — 0 media files
 - [https___coomer1_net (20260509_161330)](pages/coomer1.net/https___coomer1_net/20260509_161330/index.md) — 4 media files
 - [https___www_songsterr_com_a_wsa_van_halen_eruption_solo_live_without_a_net_tab_s944701 (20260509_163819)](pages/songsterr.com/https___www_songsterr_com_a_wsa_van_halen_eruption_solo_live_without_a_net_tab_s944701/20260509_163819/index.md) — 12 media files
+- [https___kemono_cr (20260509_165225)](pages/kemono.cr/https___kemono_cr/20260509_165225/index.md) — 0 media files
