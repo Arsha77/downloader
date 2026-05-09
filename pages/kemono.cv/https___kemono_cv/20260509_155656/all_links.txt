@@ -1,0 +1,3 @@
+./images/banner.jpg
+./images/favicon.ico
+./images/logo.png
