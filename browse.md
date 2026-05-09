@@ -18,3 +18,4 @@
 - [https___www_songsterr_com_a_wsa_van_halen_eruption_solo_live_without_a_net_tab_s944701 (20260509_163819)](pages/songsterr.com/https___www_songsterr_com_a_wsa_van_halen_eruption_solo_live_without_a_net_tab_s944701/20260509_163819/index.md) — 12 media files
 - [https___kemono_cr (20260509_165225)](pages/kemono.cr/https___kemono_cr/20260509_165225/index.md) — 0 media files
 - [https___kemono_cr_patreon_user_3295915 (20260509_170148)](pages/kemono.cr/https___kemono_cr_patreon_user_3295915/20260509_170148/index.md) — 0 media files
+- [https___archive_org_details_Mage_And_Demon_Queen_webcomic_online (20260509_173003)](pages/archive.org/https___archive_org_details_Mage_And_Demon_Queen_webcomic_online/20260509_173003/index.md) — 1 media files
