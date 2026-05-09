@@ -22,3 +22,4 @@
 - [https___kemono_cr_patreon_user_3295915 (20260509_175002)](pages/kemono.cr/https___kemono_cr_patreon_user_3295915/20260509_175002/index.md) — 0 media files
 - [https___kemono_cr_patreon_user_149263843_post_126335927 (20260509_175720)](pages/kemono.cr/https___kemono_cr_patreon_user_149263843_post_126335927/20260509_175720/index.md) — 0 media files
 - [https___kemono_cr_patreon_post_109743598 (20260509_180332)](pages/kemono.cr/https___kemono_cr_patreon_post_109743598/20260509_180332/index.md) — 0 media files
+- [https___lilymanga_net_gl_mage_demon_queen_season_01_02_03_episode_01_ (20260509_182440)](pages/lilymanga.net/https___lilymanga_net_gl_mage_demon_queen_season_01_02_03_episode_01_/20260509_182440/index.md) — 3 media files
